@@ -1,0 +1,2 @@
+# YANTRIQ
+AI Generated Swags.
